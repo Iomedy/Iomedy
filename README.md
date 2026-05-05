@@ -6,5 +6,5 @@
 
 dncopy my skins ㅤㅤㅤʚ(꒪ˊ꒳ˋ꒪)ɞㅤㅤㅤㅤ♡
 
- ![](https://komarev.com/ghpvc/?username=pruhun&color=EED871) <br />
+ ![](https://komarev.com/ghpvc/?username=ashswagin&color=EED871) <br />
    

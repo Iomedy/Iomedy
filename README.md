@@ -1,10 +1,10 @@
 <div align="center">
 
-<img src="https://sammisources.carrd.co/assets/images/image07.png?v=4a3e0256" width="300">ㅤ
+<img src="https://media1.tenor.com/m/LegEvL8NrSgAAAAd/torchflowers-minecraft.gif" width="300">ㅤ
 
-[rentry (ʘᴗʘ✿)](https://rentry.org/Iomedy)ㅤㅤ🌞ㅤㅤ[atabook](https://wifie.atabook.org/) 
+[𝓡entry ≽(•⩊ •マ≼](https://rentry.org/Iomedy)ㅤㅤ🌞ㅤㅤ[新book](https://wifie.atabook.org/) 
 
-dncopy my skins ㅤㅤㅤʚ(꒪ˊ꒳ˋ꒪)ɞㅤㅤㅤㅤ♡
+[𝓟rns.cc](https://pronouns.cc/@weakhero) ㅤㅤㅤʚ(꒪ˊ꒳ˋ꒪)ɞㅤㅤㅤㅤ♡
 
  ![](https://komarev.com/ghpvc/?username=ashswagin&color=EED871) <br />
    

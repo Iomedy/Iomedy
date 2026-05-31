@@ -14,7 +14,7 @@
 
 [Prns.cc](https://pronouns.cc/@weakhero) ㅤㅤㅤʚ(꒪ˊ꒳ˋ꒪)ɞㅤㅤㅤㅤ♡
 
-   ۶ৎㅤㅤ [Hoard](https://rentry.org/Socercer)ㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/5338980255/profile)  
+   ۶ৎㅤㅤ [Hoard](https://rentry.org/sorcerer)ㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/5338980255/profile)  
 
 
  

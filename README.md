@@ -2,10 +2,19 @@
 
 <img src="https://media1.tenor.com/m/LegEvL8NrSgAAAAd/torchflowers-minecraft.gif" width="300">ㅤ
 
+me and twin where my twin at
+
+
 [𝓡entry ≽(•⩊ •マ≼](https://rentry.org/Iomedy)ㅤㅤ🌞ㅤㅤ[新book](https://weakhero.atabook.org/) 
 
 [Prns.cc](https://pronouns.cc/@weakhero) ㅤㅤㅤʚ(꒪ˊ꒳ˋ꒪)ɞㅤㅤㅤㅤ♡
 
+   ۶ৎㅤㅤ [Hoard](https://rentry.org/Socercer)   
+
+
+ 
+ 
+ 
  ![](https://komarev.com/ghpvc/?username=ashswagin&color=EED871) <br />
 
  

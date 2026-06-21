@@ -5,7 +5,7 @@
 
 ──── ──────── « ♡ » ─────────  ──── 
 
- me nd @wiktor torchflowr & buldak
+ 
  
  
  ![](https://komarev.com/ghpvc/?username=ashswagin&color=EED871) <br />
